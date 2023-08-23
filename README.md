@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @abhaykrishna2003
 - 👀 I’m interested in coding
-- 🌱 I’m currently in BTech 1st year
+- 🌱 I’m currently in BTech 3rd year
 - 💞️ I’m looking to collaborate on small scale projects
 - 📫 How to reach me abhaykrishna2010@gmail.com
 
